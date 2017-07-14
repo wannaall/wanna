@@ -1,0 +1,2 @@
+# wanna
+Born of technology
